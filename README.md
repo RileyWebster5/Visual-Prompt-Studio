@@ -1,2 +1,4 @@
 # Visual-Prompt-Studio-
-Portfolio for Arts 1301
+Riley Webster
+Art Appreciation 
+My prompt portfolio for Arts 1301
