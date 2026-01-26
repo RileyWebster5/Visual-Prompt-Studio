@@ -1,1 +1,3 @@
-
+Visual Prompt Studio Phase 1.1
+Prompt: Create an artwork that serves as a social protest. The medium used will be water color. You can find this artwork in New York City. This artwork shows a social issue and means that people need peace. The subject matter will be a little boy around 10 years old looking into a city that looks gloomy and almost run-down looking, the subject matter style being representational. 
+Vocabulary Breakdown: Medium: The tool(s) used to create the artwork. Meaning: The purpose for the artwork/ the main message. Subject Matter: The subject of the peice, the main focus point. Representational Subject Matter: A style in which the viewer can recognize the figures, shapes and meaning of the peice.
