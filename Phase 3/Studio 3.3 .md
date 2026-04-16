@@ -1,13 +1,13 @@
-Artwork: Girl with Balloon by Banksy; Tribute Money by Masaccio; 
+Artwork: Girl with Balloon by Banksy; Tribute Money by Masaccio; https://www.youtube.com/shorts/0F6U4aE79ME
 
-Subject matter: A little girl reaching for a red balloon, everything is in black and white exept the red balloon; Jesus telling Peter to find a coin in a fishes mouth to pay a tax collector;
+Subject matter: A little girl reaching for a red balloon, everything is in black and white exept the red balloon; Jesus telling Peter to find a coin in a fishes mouth to pay a tax collector; The Ipad and the case she puts on it.
 
-Medium: Stencil mural; Fresco painting;
+Medium: Stencil mural; Fresco painting; Social media (YouTube)
 
-Elements and principals of design: Theres contrast between the white background and black shilhouette of the girl, theres emphasis on the balloon because it has color, the balloon also shows movement; Theres a pattern in the clothing in Tribute Money, theres movement in the way Jesus's arm is moving, and a veriety of colors within the clothing; 
+Elements and principals of design: Theres contrast between the white background and black shilhouette of the girl, theres emphasis on the balloon because it has color, the balloon also shows movement; Theres a pattern in the clothing in Tribute Money, theres movement in the way Jesus's arm is moving, and a veriety of colors within the clothing; The bright colors of the packaging, the ladys nail color, the pink color of the Ipad, the colorful case she puts on.
 
-Year and place: 2002 in London South Park; 1425-1427 in Florance Italy; 
+Year and place: 2002 in London South Park; 1425-1427 in Florance Italy; 2025 in The United States of America.
 
-Social, political, or spiritual ideas: Represents the girl realeasing hope into the world, the hope is symolized by a balloon, this shows that someone can find that hope the little girl gave the world; Shows Peters obedience and faith to Jesus even after an extraordinary requst is given, also shows the social power Jesus had over the citizens;
+Social, political, or spiritual ideas: Represents the girl realeasing hope into the world, the hope is symolized by a balloon, this shows that someone can find that hope the little girl gave the world; Shows Peters obedience and faith to Jesus even after an extraordinary requst is given, also shows the social power Jesus had over the citizens; The video uses social ideas with public engagement, using the Ipad as content and catering towards the visual look and aesthetic. 
 
-Moral values represented: Shows Banksys values centered around hope and letting go, this is ofthen why the artwork is accompanied by the phrase "There is always hope"; Tribute Money shows obedience, civic duty, and the balance between spiritual and secular life in a citizen;
+Moral values represented: Shows Banksys values centered around hope and letting go, this is ofthen why the artwork is accompanied by the phrase "There is always hope"; Tribute Money shows obedience, civic duty, and the balance between spiritual and secular life in a citizen; 
